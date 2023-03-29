@@ -24,6 +24,7 @@ My personal whiskey aging began with the purchase of a 5-liter cask made of Yeon
 
 ## Maturation
 ![1](/resource/1.jpeg)
+* 2022.04.03 ~ 2023.03.13 (344 Days)
 
 ## Bottling
 * 13th March 2023
