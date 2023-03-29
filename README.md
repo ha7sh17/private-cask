@@ -1,4 +1,7 @@
 ![logo](/resource/turtleneck.png)
+![1](/resource/IMG_5422)
+![1](/resource/IMG_2888)
+![1](/resource/IMG_5430)
 ![1](/resource/1.jpeg)
 ![2](/resource/2.jpeg)
 ![3](/resource/3.jpeg)
